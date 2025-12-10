@@ -1,4 +1,4 @@
-Progression 2024-2025
+Progression 2025-2026
 1. Fractions.
 2. Proportions et évolutions.
 3. Opérations sur les puissances.
